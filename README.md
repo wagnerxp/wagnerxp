@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wagnerxp
 - 👀 Estou interessado em ...viver🤕
-- 🌱 Atualmente estou aprendendo..  tentando  chegar na minha melhor  fase
+- 🌱 estou na minha melhor fase
 - 💞️ I’m looking to collaborate on  tudo
 - 📫 Como chegar até mim ...manda salve no meu inst wk.041🤡  
 
